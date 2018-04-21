@@ -1,6 +1,6 @@
 ---
-title:  "Lesson 12: How Can I Do This Great Wickedness?"
-date:   2018-04-14 13:22:08 -0800
+title:  "Lesson 12: Fruitful in the Land of My Affliction"
+date:   2018-04-22 10:00:08 -0800
 categories: lessons old-testament
 ---
 # Lesson 12: &quot;Fruitful in the Land of My Affliction&quot;
