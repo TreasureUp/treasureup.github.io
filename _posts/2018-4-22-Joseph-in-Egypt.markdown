@@ -38,9 +38,35 @@ categories: lessons old-testament
 
 [Genesis 40: 20-23](https://www.lds.org/scriptures/ot/gen/40.20-23?lang=eng#20)
 
-[Genesis 41:17–24](https://www.lds.org/scriptures/ot/gen/41.17-24?lang=eng#0)
+>20 ¶ And it came to pass the third day, which was Pharaoh’s birthday, that he made a feast unto all his servants: and he lifted up the head of the chief butler and of the chief baker among his servants.
+>
+>21 And he restored the chief butler unto his butlership again; and he gave the cup into Pharaoh’s hand:
+>
+>22 But he hanged the chief baker: as Joseph had interpreted to them.
+>
+>23 Yet did not the chief butler remember Joseph, but forgat him.
+
+[Genesis 41:8, 17–24](https://www.lds.org/scriptures/ot/gen/41.17-24?lang=eng#0)
+
+>8 And it came to pass in the morning that his spirit was troubled; and he sent and called for all the magicians of Egypt, and all the wise men thereof: and Pharaoh told them his dream; but there was none that could interpret them unto Pharaoh.
 
 [Genesis 41:25–32](https://www.lds.org/scriptures/ot/gen/41.25-32?lang=eng#24).
+
+>25 ¶ And Joseph said unto Pharaoh, The dream of Pharaoh is one: God hath shewed Pharaoh what he is about to do.
+>
+26 The seven good kine are seven years; and the seven good ears are seven years: the dream is one.
+>
+>27 And the seven thin and ill favoured kine that came up after them are seven years; and the seven empty ears blasted with the east wind shall be seven years of famine.
+>
+>28 This is the thing which I have spoken unto Pharaoh: What God is about to do he sheweth unto Pharaoh.
+>
+>29 Behold, there come seven years of great plenty throughout all the land of Egypt:
+>
+>30 And there shall arise after them seven years of famine; and all the plenty shall be forgotten in the land of Egypt; and the famine shall consume the land;
+>
+>31 And the plenty shall not be known in the land by reason of that famine following; for it shall be very grievous.
+>
+>32 And for that the dream was doubled unto Pharaoh twice; it is because the thing is established by God, and God will shortly bring it to pass.
 
 ## Pharaoh&#39;s makes Joseph ruler over all Egypt.
 
