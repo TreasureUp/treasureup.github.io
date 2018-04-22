@@ -11,6 +11,7 @@ categories: lessons old-testament
 
 ## [Genesis 39:21-22](https://www.lds.org/scriptures/ot/gen/39.21-22?lang=eng#19).
 >21 ¶ But the Lord was with Joseph, and shewed him mercy, and gave him favour in the sight of the keeper of the prison.
+>
 >22 And the keeper of the prison committed to Joseph’s hand all the prisoners that were in the prison; and whatsoever they did there, he >was the doer of it.
 
 ## Joseph interprets the dreams of the butler, the baker and Pharaoh.
