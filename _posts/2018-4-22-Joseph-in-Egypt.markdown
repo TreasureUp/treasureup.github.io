@@ -19,9 +19,9 @@ categories: lessons old-testament
 [Genesis 40:1,3,5](https://www.lds.org/scriptures/ot/gen/40.1-5?lang=eng#13)
 
 >1 And it came to pass after these things, that the butler of the king of Egypt and his baker had offended their lord the king of Egypt.
-
+>
 >3 And he put them in ward in the house of the captain of the guard, into the prison, the place where Joseph was bound.
-
+>
 >5 And they dreamed a dream both of them, each man his dream in one night, each man according to the interpretation of his dream, the butler and the baker of the king of Egypt, which were bound in the prison.
 
 [Genesis 40: 8-15](https://www.lds.org/scriptures/ot/gen/40.8-15?lang=eng#13)
