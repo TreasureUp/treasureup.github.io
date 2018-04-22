@@ -105,13 +105,3 @@ categories: lessons old-testament
 >9 Haste ye, and go up to my father, and say unto him, Thus saith thy son Joseph, God hath made me lord of all Egypt: come down unto me, tarry not:
 >
 >10 And thou shalt dwell in the land of Goshen, and thou shalt be near unto me, thou, and thy children, and thy children’s children, and thy flocks, and thy herds, and all that thou hast:
-
-> "Just as it is important to prepare ourselves spiritually, we must also prepare ourselves for our temporal needs. … We have been instructed for years to follow at least four requirements in preparing for that which is to come."
->- First, gain an adequate education.
->- Second, live strictly within your income and save something for a rainy day.
->- Third, avoid excessive debt.
->- Fourth, acquire and store a reserve of food and supplies that will sustain life [if local laws permit such storage].
->
-> Elder L. Tom Perry. 
->
-
