@@ -9,7 +9,7 @@ categories: lessons old-testament
   - His brothers conspired to kill him, then sold him as a slave instead ([Genesis 37:18–28](https://www.lds.org/scriptures/ot/gen/37.18-28?lang=eng#17)).
   - He was unjustly put in prison after refusing to do evil ([Genesis 39:20](https://www.lds.org/scriptures/ot/gen/39.20?lang=eng#19)).
 
-## ([Genesis 39:21-22] (https://www.lds.org/scriptures/ot/gen/39.21-22?lang=eng#19)).
+## ([Genesis 39:21-22](https://www.lds.org/scriptures/ot/gen/39.21-22?lang=eng#19)).
 >21 ¶ But the Lord was with Joseph, and shewed him mercy, and gave him favour in the sight of the keeper of the prison.
 >22 And the keeper of the prison committed to Joseph’s hand all the prisoners that were in the prison; and whatsoever they did there, he >was the doer of it.
 
