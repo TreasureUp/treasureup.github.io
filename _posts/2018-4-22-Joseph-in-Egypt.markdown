@@ -36,11 +36,13 @@ categories: lessons old-testament
 
 [Genesis 45: 1-10](https://www.lds.org/scriptures/ot/gen/45.1-10?lang=eng#primary)
 
-# Elder L. Tom Perry taught:
-
-Just as it is important to prepare ourselves spiritually, we must also prepare ourselves for our temporal needs. … We have been instructed for years to follow at least four requirements in preparing for that which is to come.
+> "Just as it is important to prepare ourselves spiritually, we must also prepare ourselves for our temporal needs. … We have been instructed for years to follow at least four requirements in preparing for that which is to come."
 
 - First, gain an adequate education.
 - Second, live strictly within your income and save something for a rainy day.
 - Third, avoid excessive debt.
 - Fourth, acquire and store a reserve of food and supplies that will sustain life [if local laws permit such storage].
+>
+> Elder L. Tom Perry taught
+>
+
