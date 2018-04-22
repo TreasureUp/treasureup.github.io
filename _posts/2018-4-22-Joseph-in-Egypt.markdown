@@ -24,7 +24,17 @@ categories: lessons old-testament
 >
 >5 And they dreamed a dream both of them, each man his dream in one night, each man according to the interpretation of his dream, the butler and the baker of the king of Egypt, which were bound in the prison.
 
-[Genesis 40: 8-15](https://www.lds.org/scriptures/ot/gen/40.8-15?lang=eng#13)
+[Genesis 40: 8,12-15](https://www.lds.org/scriptures/ot/gen/40.8-15?lang=eng#13)
+
+>8 And they said unto him, We have dreamed a dream, and there is no interpreter of it. And Joseph said unto them, Do not interpretations belong to God? tell me them, I pray you.
+>
+>12 And Joseph said unto him, This is the interpretation of it: The three branches are three days:
+>
+>13 Yet within three days shall Pharaoh lift up thine head, and restore thee unto thy place: and thou shalt deliver Pharaoh’s cup into his hand, after the former manner when thou wast his butler.
+>
+>14 But think on me when it shall be well with thee, and shew kindness, I pray thee, unto me, and make mention of me unto Pharaoh, and bring me out of this house:
+>
+>15 For indeed I was stolen away out of the land of the Hebrews: and here also have I done nothing that they should put me into the dungeon.
 
 [Genesis 40: 20-23](https://www.lds.org/scriptures/ot/gen/40.20-23?lang=eng#20)
 
