@@ -89,7 +89,7 @@ categories: lessons old-testament
 >1 Then Joseph could not refrain himself before all them that stood by him; and he cried, Cause every man to go out from me. And there stood no man with him, while Joseph made himself known unto his brethren.
 >
 >2 And he wept aloud: and the Egyptians and the house of Pharaoh heard.
-
+>
 >3 And Joseph said unto his brethren, I am Joseph; doth my father yet live? And his brethren could not answer him; for they were troubled at his presence.
 >
 >4 And Joseph said unto his brethren, Come near to me, I pray you. And they came near. And he said, I am Josephy our brother, whom ye sold into Egypt
