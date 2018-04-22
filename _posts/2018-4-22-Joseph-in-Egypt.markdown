@@ -46,7 +46,7 @@ categories: lessons old-testament
 >
 >23 Yet did not the chief butler remember Joseph, but forgat him.
 
-[Genesis 41:8, 17–24](https://www.lds.org/scriptures/ot/gen/41.17-24?lang=eng#0)
+[Genesis 41:8](https://www.lds.org/scriptures/ot/gen/41.17-24?lang=eng#0)
 
 >8 And it came to pass in the morning that his spirit was troubled; and he sent and called for all the magicians of Egypt, and all the wise men thereof: and Pharaoh told them his dream; but there was none that could interpret them unto Pharaoh.
 
@@ -71,6 +71,16 @@ categories: lessons old-testament
 ## Pharaoh&#39;s makes Joseph ruler over all Egypt.
 
 [Genesis 41:37–43](https://www.lds.org/scriptures/ot/gen/41.37-43?lang=eng#36)
+
+>39 And Pharaoh said unto Joseph, Forasmuch as God hath shewed thee all this, there is none so discreet and wise as thou art:
+>
+>40 Thou shalt be over my house, and according unto thy word shall all my people be ruled: only in the throne will I be greater than thou.
+>
+>41 And Pharaoh said unto Joseph, See, I have set thee over all the land of Egypt.
+>
+>42 And Pharaoh took off his ring from his hand, and put it upon Joseph’s hand, and arrayed him in vestures of fine linen, and put a gold chain about his neck;
+>
+>43 And he made him to ride in the second chariot which he had; and they cried before him, Bow the knee: and he made him ruler over all the land of Egypt.
 
 ## Joseph makes himself known to his brothers and forgives them.
 
