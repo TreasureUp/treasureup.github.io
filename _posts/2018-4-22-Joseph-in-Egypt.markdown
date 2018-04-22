@@ -43,6 +43,6 @@ categories: lessons old-testament
 >- Third, avoid excessive debt.
 >- Fourth, acquire and store a reserve of food and supplies that will sustain life [if local laws permit such storage].
 >
-> Elder L. Tom Perry taught
+> Elder L. Tom Perry. 
 >
 
