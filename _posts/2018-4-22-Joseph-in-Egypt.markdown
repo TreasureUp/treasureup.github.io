@@ -3,13 +3,13 @@ title:  "Lesson 12: Fruitful in the Land of My Affliction"
 date:   2018-04-22 10:00:08 -0800
 categories: lessons old-testament
 ---
-# Trials Joseph experienced in the early part of his life 
+## Trials Joseph experienced in the early part of his life 
 ([Genesis 37](https://www.lds.org/scriptures/ot/gen/37?lang=eng); [39](https://www.lds.org/scriptures/ot/gen/39?lang=eng)).
   - He was hated by his brothers ( [Genesis 37:4](https://www.lds.org/scriptures/ot/gen/37.4?lang=eng#3)).
   - His brothers conspired to kill him, then sold him as a slave instead ( [Genesis 37:18–28](https://www.lds.org/scriptures/ot/gen/37.18-28?lang=eng#17)).
   - He was unjustly put in prison after refusing to do evil ( [Genesis 39:20](https://www.lds.org/scriptures/ot/gen/39.20?lang=eng#19)).
 
-# Joseph interprets the dreams of the butler, the baker and Pharaoh.
+## Joseph interprets the dreams of the butler, the baker and Pharaoh.
 
 [Genesis 40:1-5](https://www.lds.org/scriptures/ot/gen/40.1-5?lang=eng#13)
 
@@ -23,11 +23,11 @@ categories: lessons old-testament
 
 [Genesis 41:25–32](https://www.lds.org/scriptures/ot/gen/41.25-32?lang=eng#24).
 
-# Pharaoh&#39;s makes Joseph ruler over all Egypt.
+## Pharaoh&#39;s makes Joseph ruler over all Egypt.
 
 [Genesis 41:37–43](https://www.lds.org/scriptures/ot/gen/41.37-43?lang=eng#36)
 
-# Joseph makes himself known to his brothers and forgives them.
+## Joseph makes himself known to his brothers and forgives them.
 
   [Genesis 42:1–3](https://www.lds.org/scriptures/ot/gen/42.1-3?lang=eng#0)
 
