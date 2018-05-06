@@ -13,7 +13,7 @@ categories: lessons old-testament
 [Numbers 11: 1-8](https://www.lds.org/scriptures/ot/num/11.1-8?lang=eng#0)
 
 Why did they behave this way? 
-Do we stuff like this? 
+Do we do stuff like this? 
 How can we avoid it?
 
 ### The Lord's Response 
