@@ -1,80 +1,84 @@
 ---
-title:  "Lesson 15: Look to the Lord and Live?"
+title:  "Lesson 15: Look to God and Live"
 date:   2018-05-06 01:22:08 -0800
 categories: lessons old-testament
 ---
 
-
-
-
-## [Genesis 37 & 39](https://www.lds.org/scriptures/ot/gen/37?lang=eng#0)
-
-> 8 But he refused, and said unto his master’s wife, Behold, my master wotteth not what is with me in the house, and he hath committed all that he hath to my hand;
+> And now, my son, see that ye take care of these sacred things, yea, see that ye look to God and live.
 >
-> 9 There is none greater in this house than I; neither hath he kept back any thing from me but thee, because thou art his wife: how then can I do this great wickedness, and sin against God?
-> [Genesis 39:8-9](https://www.lds.org/scriptures/ot/gen/39?lang=eng#7)
+> Alma 37:47
 
-## The Sons of Israel
 
-| Leah | Bilhah | Zilpah | Rachel |
-|:----:|:----:|:----:|:----:|
-| Reuben (1) | Dan (5) | Gad (7)| Joseph (11) |
-| Simeon (2) | Napthali (6)| Asher (8) | Benjamin (12)|
-| Levi (3) |       |       |      |
-| Judah (4) |       |        |       |
-| Issachar (9) |       |       |        |
-| Zebulun (10) |       |       |        |
+## Israelites Tire of Manna
+[Numbers 11: 1-8](https://www.lds.org/scriptures/ot/num/11.1-8?lang=eng#0)
 
-These sons are the patriarchs of the twelve tribes of Israel. (Minus Reuben who loses his birthright to Joseph)
+Why did they behave this way? 
+Do we stuff like this? 
+How can we avoid it?
 
-## Israel loved Joseph more
+### The Lord's Response 
+[Numbers 11: 18-20](https://www.lds.org/scriptures/ot/num/11.8-20?lang=eng#17)
 
-[Genesis 37](https://www.lds.org/scriptures/ot/gen/37?lang=eng#0)
 
-![Joseph Searches for his Brothers](http://www.turningtogodsword.com/wp-content/uploads/2016/03/22-genesis-022118-1.jpg)
+## Moses Receives Much Needed Help
+[Numbers 11: 14-17](https://www.lds.org/scriptures/ot/num/11.14-17?lang=eng#13)
 
-## Joseph in Egypt
+[Numbers 11: 24-29](https://www.lds.org/scriptures/ot/num/11.24-29?lang=eng#23)
 
-[Genesis 39](https://www.lds.org/scriptures/ot/gen/39?lang=eng#0)
+## Aaron and Miriam Murmur
+[Numbers 12: 1-8](https://www.lds.org/scriptures/ot/num/12.1-8?lang=eng#0)
 
-### Joseph and Potiphar’s Wife
-
-[Genesis 39:7-12](https://www.lds.org/scriptures/ot/gen/39.7-12?lang=eng#6)
-
-> 8 But he refused, and said unto his master’s wife, Behold, my master wotteth not what is with me in the house, and he hath committed all that he hath to my hand;
+> The prophets, seers, and revelators have had and still have the responsibility and privilege of receiving and declaring the word of God for the world. Individual members, parents, and leaders have the right to receive revelation for their own responsibility but have no duty nor right to declare the word of God beyond the limits of their own responsibility.
 >
-> 9 There is none greater in this house than I; neither hath he kept back any thing from me but thee, because thou art his wife: how then can I do this great wickedness, and sin against God?
+> Elder James E Faust
+
+### Miriam punished
+[Numbers 12: 9-10](https://www.lds.org/scriptures/ot/num/12.9-10?lang=eng#8)
+
+## The Land of Canaan
+### 12 Spies
+[Numbers 13: 1-3](https://www.lds.org/scriptures/ot/num/13.1-3?lang=eng#0)
+[Numbers 13: 17-20](https://www.lds.org/scriptures/ot/num/13.17-20?lang=eng#16)
+
+### The 12 Report their Findings
+[Numbers 13: 23-33](https://www.lds.org/scriptures/ot/num/13.23-33?lang=eng#22)
+
+> Ten of the spies were victims of their own doubts and fears. They gave a negative report of the numbers and stature of the Canaanites. … They compared themselves as grasshoppers to the giants they had seen in the land. …
+> We see some around us who are indifferent concerning the future of this work, who are apathetic, who speak of limitations, who express fears, who spend their time digging out and writing about what they regard to be weaknesses which really are of no consequence. With doubt concerning its past, they have no vision concerning its future.
+> 
+> President Gordon B Hinckley
+
+### Joshua and Caleb are Faithful
+> "The Lord is with us: fear them not."
+[Numbers 14: 1-9](https://www.lds.org/scriptures/ot/num/14.1-9?lang=eng#0)
+
+> There is no place in this work for those who believe only in the gospel of doom and gloom. The gospel is good news. It is a message of triumph. It is a cause to be embraced with enthusiasm.
+> The Lord never said that there would not be troubles. Our people have known afflictions of every sort as those who have opposed this work have come upon them. But faith has shown through all their sorrows. This work has consistently moved forward and has never taken a backward step since its inception. …
+> This is an age of pessimism. Ours is a mission of faith. To my brethren and sisters everywhere, I call upon you to reaffirm your faith, to move this work forward across the world. You can make it stronger by the manner in which you live.
 >
-> [Genesis 39:8-9](https://www.lds.org/scriptures/ot/gen/39?lang=eng#7)
+> President Gordon B Hinckley  
 
-Joseph is thrown in prison. But he makes the best of it.
+### The Lord's Punishment 
+[Numbers 14: 22-35](https://www.lds.org/scriptures/ot/num/14.22-35?lang=eng#21)
 
-> “[The] ability to turn everything into something good appears to be a godly characteristic. Our Heavenly Father always seems able to do this. Everything, no matter how dire, becomes a victory to the Lord. Joseph, although a slave and wholly undeserving of this fate, nevertheless remained faithful to the Lord and continued to live the commandments and made something very good of his degrading circumstances. People like this cannot be defeated."
->
-> Elder Hartman Rector Jr
+## The Brass Serpent 
+![The Brass Serpent](http://media.ldscdn.org/images/media-library/gospel-art/old-testament/moses-brass-serpent-39479-wallpaper.jpg)
 
-## Immorality in Joseph's Family
+### In the Wilderness
+[Numbers 21: 1-9](https://www.lds.org/scriptures/ot/num/21.1-9?lang=eng#0)
 
-### Shechem
+Why wouldn't people look?
 
-[Genesis 34:1-7](https://www.lds.org/scriptures/ot/gen/34.1-7?lang=eng#0)
+[Alma 33:18-20](https://www.lds.org/scriptures/bofm/alma/33.18-20?lang=eng#17)
 
->“And his soul clave unto Dinah … and he loved the damsel”
+### In Our Lives
 
-Does it really seem like he loved her? People use “love” as an excuse to do all kinds of things. 
+[Alma 33:18-20](https://www.lds.org/scriptures/bofm/alma/33.18-20?lang=eng#17)
 
-Behavior that makes it hard to pray, makes people unworthy to enter the temple, or breaks up families is not motivated by love.
+[Helaman 8:15](https://www.lds.org/scriptures/bofm/hel/8.15?lang=eng#14)
 
-### Reuben
+What does it mean to look to Christ?
 
-[Genesis 35:22](https://www.lds.org/scriptures/ot/gen/35.22?lang=eng#21)
-
-[Genesis 49:3-4](https://www.lds.org/scriptures/ot/gen/49.3-4?lang=eng#2)
-
-[1 Chronicles 5:1–2](https://www.lds.org/scriptures/ot/1-chr/5.1-2?lang=eng#0)
-
-
-Joseph was thrown into prison for refusing to be be immoral. Reuben lost his birthright and his place as a patriarch because he chose to be immoral. 
-Which is really worse? 
-
-[John 8:31–36](https://www.lds.org/scriptures/nt/john/8.31-36?lang=eng#30)
+> We, like Israel of old, must rivet our eyes and minds upon … Christ if we hope to gain eternal life. … Our looks must not be allowed to wander across the way or to become fixed upon the perishable things of the world. The eye … must be trained to look upward. We must look to God and live!
+> 
+> Elder Carlos E Assay
